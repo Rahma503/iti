@@ -1,1 +1,1 @@
-![Image Description](36471.eps)
+![Image Description](1.png)
